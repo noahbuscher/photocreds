@@ -24,9 +24,13 @@ List of places I've seen my photos. :camera:
 
 - ["Should You Hide Your Personality at Work?"](https://www.fastcompany.com/90227347/should-you-hide-your-personality-at-work)
 - ["How Leaders Earn Trust"](https://medium.com/swlh/how-leaders-earn-trust-d33ec206ef30)
+- ["A girl, a morning and a bird"](https://thecreative.cafe/a-girl-a-morning-and-a-bird-1359e237569c)
+- ["Get Rid Of Your Unproductive Laziness Once And For All"](https://medium.com/swlh/get-rid-of-your-unproductive-laziness-once-and-for-all-8e2c9b459482)
 - ["What Does it Cost to Start a New Farm?"](https://www.fastcompany.com/40458330/what-does-it-cost-to-start-a-new-farm)
+- ["Trust"](https://psiloveyou.xyz/trust-5e88aad039c4)
 - ["Viewing Generational Differences Through A Cross-Cultural Lens"](https://www.15five.com/blog/manage-millennials/)
 - ["15 Women Reveal The Beauty Secrets That Changed Their Life"](https://thoughtcatalog.com/g00/callie-byrnes/2017/12/15-women-reveal-the-beauty-secrets-that-changed-their-lives/)
+- ["5 Things I’ve Learned About Simple Living"](https://jenrao.com/5-simple-living-lessons/)
 - ["How to Support the Emotional Wellness of Your Team"](https://www.linkedin.com/pulse/how-support-emotional-wellness-your-team-beata-aleksandrowicz/)
 - ["Praying the B Word"](http://whitneyputnam.com/2017/05/11/praying-the-b-word/)
 - ["9 facial traits that make someone more attractive, according to science"](https://www.businessinsider.com/characteristics-that-make-you-attracted-to-someones-face-2018-2)
