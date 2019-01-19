@@ -13,6 +13,7 @@ List of places I've seen my photos. :camera:
 ## Apps
 
 - [PicsArt](https://itunes.apple.com/us/app/picsart-photo-editor-collage/id587366035?mt=80)
+- [Panols](https://www.instagram.com/panols/)
 
 ## Websites
 
