@@ -19,10 +19,11 @@ List of places I've seen my photos. :camera:
 - [Stickermule Faces](https://www.stickermule.com/faces/)
 - [Free Mantra Project](https://thefreemantraproject.com/)
 - [Fearless Femme](https://www.fearlessfemme.co.uk/beyond-the-mirror/)
+- [Southwest Mutual](https://southwestmutualins.com/agents/)
 
 ## Blogs
 
-- ["Tourette.org"](https://tourette.org/blogs/about-tourette/depression/depression-blog-noah-buscher/)
+- [Tourette.org](https://tourette.org/blogs/about-tourette/depression/depression-blog-noah-buscher/)
 - ["Should You Hide Your Personality at Work?"](https://www.fastcompany.com/90227347/should-you-hide-your-personality-at-work)
 - ["How Leaders Earn Trust"](https://medium.com/swlh/how-leaders-earn-trust-d33ec206ef30)
 - ["A girl, a morning and a bird"](https://thecreative.cafe/a-girl-a-morning-and-a-bird-1359e237569c)
