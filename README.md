@@ -30,6 +30,7 @@ List of places I've seen my photos. :camera:
 - ["A girl, a morning and a bird"](https://thecreative.cafe/a-girl-a-morning-and-a-bird-1359e237569c)
 - ["Get Rid Of Your Unproductive Laziness Once And For All"](https://medium.com/swlh/get-rid-of-your-unproductive-laziness-once-and-for-all-8e2c9b459482)
 - ["What Does it Cost to Start a New Farm?"](https://www.fastcompany.com/40458330/what-does-it-cost-to-start-a-new-farm)
+- ["Vitamin C"](https://twitter.com/HuffPost/status/1088280270644658176)
 - ["Trust"](https://psiloveyou.xyz/trust-5e88aad039c4)
 - ["Viewing Generational Differences Through A Cross-Cultural Lens"](https://www.15five.com/blog/manage-millennials/)
 - ["15 Women Reveal The Beauty Secrets That Changed Their Life"](https://thoughtcatalog.com/g00/callie-byrnes/2017/12/15-women-reveal-the-beauty-secrets-that-changed-their-lives/)
